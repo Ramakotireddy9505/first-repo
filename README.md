@@ -1,2 +1,2 @@
 # first-repo
-just a basic repository to play with
+Ramakotireddy Ragipindi 1616 village o Drive Maryville MO 64468
